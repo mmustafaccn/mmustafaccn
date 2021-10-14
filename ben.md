@@ -1,1 +1,0 @@
--Ben Muhammed Siber Güvenlik hakkında araştırmalar yapıyorum 
